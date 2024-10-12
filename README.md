@@ -1,1 +1,1 @@
-# shibler0.github.io
+google.com, pub-9241326237105365, DIRECT, f08c47fec0942fa0
